@@ -1,2 +1,4 @@
 # dang-reels-facebook-bang-may-tinh
 Hướng dẫn đăng thước phim Facebook bằng máy tính đơn giản
+<p style="text-align: justify;"><a href="https://blogvn.org/cach-dang-reels-facebook-tren-may-tinh.html"><strong>Cách đăng reels trên Facebook bằng máy tính</strong></a> chính là điều mà giới trẻ muốn biết cách thực hiện hiện nay. Giao diện trên máy tính thường có sự khác biệt nhất định với điện thoại. Vì vậy, nhiều người dùng không biết cách thao tác như thế nào? Hoặc dù cho đã thực hiện, người dùng vẫn nhận định là không thành công? Vậy làm sao để tạo video ngắn Facebook trên máy tính?</p>
+<p style="text-align: justify;">Với nội dung bài viết sau <a href="http://Blogvn.org" target="_blank" rel="noopener">Blogvn.org</a> sẽ hướng dẫn bạn cách thực hiện. Giờ đây bạn vẫn có thể tự do đăng những video thước phim của mình ngay cả trên máy tính dễ dàng.</p>
